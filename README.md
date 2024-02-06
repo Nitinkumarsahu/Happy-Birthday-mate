@@ -1,6 +1,6 @@
 <div align=center>
     
-# Happy Birthday Mate!
+# Happy Birthday MateEEEEE!
 
 Collection of Wishes for a Mate's Birthday
     
